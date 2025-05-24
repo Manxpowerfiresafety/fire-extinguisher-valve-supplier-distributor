@@ -2,8 +2,6 @@
 <bold>Manximpex: Your Trusted Fire Extinguisher Valve Supplier & Distributor </bold><br><br>
 When it comes to safety and protection against fire hazards, the importance of high-quality fire safety equipment cannot be overstated. Fire extinguishers are essential in both residential and commercial spaces to safeguard lives and property. At the heart of a reliable fire extinguisher lies a vital component: the fire extinguisher valve. For those looking for superior valves and other fire safety products, Manximpex is a leading supplier and distributor, offering the premium brand Manxpower.<br><br>
 
-<img src="[image.jpg](https://manximpex.com/wp-content/uploads/2021/10/REF.jpg)" alt="Description" />
-
 Manximpex is a trusted name in the fire safety industry, specializing in supplying top-notch fire extinguisher valves and a wide range of associated products. Our brand, Manxpower, has become synonymous with durability, reliability, and performance. Whether you're a fire safety equipment distributor, a contractor, or a business owner looking to equip your space with high-quality fire extinguishers, Manximpex and Manxpower deliver the best solutions.<br><br>
 We supply a wide range of valves designed to meet the strictest international standards, ensuring that your fire extinguishers operate with the highest efficiency and safety. Our products are engineered for easy use and long-term reliability, giving you peace of mind knowing that your equipment is prepared for any emergency.<br><br>
 <h2>The Importance of Fire Extinguisher Valves<h2>
